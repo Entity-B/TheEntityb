@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Entityb
-- 🌱 I’m currently learning Csharp, understand some, but not all
+- 🌱 I know some C# But Learning more and more every day
