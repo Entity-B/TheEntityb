@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Entityb
-- 🌱 I know some C# But Learning more and more every day
+- 🌱 UHIOY890'J989YUOHIP;T79G8IOPYPI7GT689YIPOLFVPI7T89GP79Y8HUGO[PO[79G8IPYBU;IP8B;9GT7IUPYYIUP
